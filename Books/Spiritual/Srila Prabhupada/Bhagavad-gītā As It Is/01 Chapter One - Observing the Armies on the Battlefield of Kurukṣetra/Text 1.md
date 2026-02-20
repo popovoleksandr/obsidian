@@ -1,0 +1,29 @@
+#Source/Literature/Spiritual/Bhagavad-Gita/1/1 
+
+धृतराष्ट्र उवाच  
+धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सव: ।  
+मामका: पाण्डवाश्चैव किमकुर्वत सञ्जय ॥ १ ॥
+
+_dhṛtarāṣṭra uvāca
+dharma-kṣetre kuru-kṣetre  
+samavetā yuyutsavaḥ  
+māmakāḥ pāṇḍavāś caiva  
+kim akurvata sañjaya_
+
+## Synonyms
+
+[_dhṛtarāṣṭraḥ_](https://vedabase.io/en/search/synonyms/?original=dh%E1%B9%9Btar%C4%81%E1%B9%A3%E1%B9%ADra%E1%B8%A5) [_uvāca_](https://vedabase.io/en/search/synonyms/?original=uv%C4%81ca) — King Dhṛtarāṣṭra said; [_dharma_](https://vedabase.io/en/search/synonyms/?original=dharma)-[_kṣetre_](https://vedabase.io/en/search/synonyms/?original=k%E1%B9%A3etre) — in the place of pilgrimage; [_kuru_](https://vedabase.io/en/search/synonyms/?original=kuru)-[_kṣetre_](https://vedabase.io/en/search/synonyms/?original=k%E1%B9%A3etre) — in the place named Kurukṣetra; [_samavetāḥ_](https://vedabase.io/en/search/synonyms/?original=samavet%C4%81%E1%B8%A5) — assembled; [_yuyutsavaḥ_](https://vedabase.io/en/search/synonyms/?original=yuyutsava%E1%B8%A5) — desiring to fight; [_māmakāḥ_](https://vedabase.io/en/search/synonyms/?original=m%C4%81mak%C4%81%E1%B8%A5) — my party (sons); [_pāṇḍavāḥ_](https://vedabase.io/en/search/synonyms/?original=p%C4%81%E1%B9%87%E1%B8%8Dav%C4%81%E1%B8%A5) — the sons of Pāṇḍu; [_ca_](https://vedabase.io/en/search/synonyms/?original=ca) — and; [_eva_](https://vedabase.io/en/search/synonyms/?original=eva) — certainly; [_kim_](https://vedabase.io/en/search/synonyms/?original=kim) — what; [_akurvata_](https://vedabase.io/en/search/synonyms/?original=akurvata) — did they do; [_sañjaya_](https://vedabase.io/en/search/synonyms/?original=sa%C3%B1jaya) — O Sañjaya.
+
+## Translation
+
+**Dhṛtarāṣṭra said: O Sañjaya, after my sons and the sons of Pāṇḍu assembled in the place of pilgrimage at Kurukṣetra, desiring to fight, what did they do?**
+
+## Purport
+
+_[Bhagavad-gītā](https://vedabase.io/en/library/bg/)_ is the widely read theistic science summarized in the _Gītā-māhātmya_ (_Glorification of the Gītā_). There it says that one should read _[Bhagavad-gītā](https://vedabase.io/en/library/bg/)_ very scrutinizingly with the help of a person who is a devotee of Śrī Kṛṣṇa and try to understand it without personally motivated interpretations. The example of clear understanding is there in the _[Bhagavad-gītā](https://vedabase.io/en/library/bg/)_ itself, in the way the teaching is understood by Arjuna, who heard the _Gītā_ directly from the Lord. If someone is fortunate enough to understand the _[Bhagavad-gītā](https://vedabase.io/en/library/bg/)_ in that line of disciplic succession, without motivated interpretation, then he surpasses all studies of Vedic wisdom, and all scriptures of the world. One will find in the _[Bhagavad-gītā](https://vedabase.io/en/library/bg/)_ all that is contained in other scriptures, but the reader will also find things which are not to be found elsewhere. That is the specific standard of the _Gītā._ It is the perfect theistic science because it is directly spoken by the Supreme Personality of Godhead, Lord Śrī Kṛṣṇa.
+
+The topics discussed by Dhṛtarāṣṭra and Sañjaya, as described in the _Mahābhārata,_ form the basic principle for this great philosophy. It is understood that this philosophy evolved on the Battlefield of Kurukṣetra, which is a sacred place of pilgrimage from the immemorial time of the Vedic age. It was spoken by the Lord when He was present personally on this planet for the guidance of mankind.
+
+The word _dharma-kṣetra_ (a place where religious rituals are performed) is significant because, on the Battlefield of Kurukṣetra, the Supreme Personality of Godhead was present on the side of Arjuna. Dhṛtarāṣṭra, the father of the Kurus, was highly doubtful about the possibility of his sons’ ultimate victory. In his doubt, he inquired from his secretary Sañjaya, “What did they do?” He was confident that both his sons and the sons of his younger brother Pāṇḍu were assembled in that Field of Kurukṣetra for a determined engagement of the war. Still, his inquiry is significant. He did not want a compromise between the cousins and brothers, and he wanted to be sure of the fate of his sons on the battlefield. Because the battle was arranged to be fought at Kurukṣetra, which is mentioned elsewhere in the _Vedas_ as a place of worship – even for the denizens of heaven – Dhṛtarāṣṭra became very fearful about the influence of the holy place on the outcome of the battle. He knew very well that this would influence Arjuna and the sons of Pāṇḍu favorably, because by nature they were all virtuous. Sañjaya was a student of Vyāsa, and therefore, by the mercy of Vyāsa, Sañjaya was able to envision the Battlefield of Kurukṣetra even while he was in the room of Dhṛtarāṣṭra. And so, Dhṛtarāṣṭra asked him about the situation on the battlefield.
+
+Both the Pāṇḍavas and the sons of Dhṛtarāṣṭra belong to the same family, but Dhṛtarāṣṭra’s mind is disclosed herein. He deliberately claimed only his sons as Kurus, and he separated the sons of Pāṇḍu from the family heritage. One can thus understand the specific position of Dhṛtarāṣṭra in his relationship with his nephews, the sons of Pāṇḍu. As in the paddy field the unnecessary plants are taken out, so it is expected from the very beginning of these topics that in the religious field of Kurukṣetra, where the father of religion, Śrī Kṛṣṇa, was present, the unwanted plants like Dhṛtarāṣṭra’s son Duryodhana and others would be wiped out and the thoroughly religious persons, headed by Yudhiṣṭhira, would be established by the Lord. This is the significance of the words _dharma-kṣetre_ and _kuru-kṣetre,_ apart from their historical and Vedic importance.
