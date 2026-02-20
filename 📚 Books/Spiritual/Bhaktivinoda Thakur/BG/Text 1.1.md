@@ -1,1 +1,0 @@
-#Source/Literature/Spiritual/Bhagavad-Gita/1/1  
